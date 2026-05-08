@@ -1,4 +1,4 @@
-
+rare Obsidian for macOS Macro | voice notes + task automation is the best Obsidian for macOS macro, featuring voice notes and task automation. Safe, efficient, and optimized for
 
 
 
